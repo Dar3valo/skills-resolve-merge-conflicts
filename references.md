@@ -1,3 +1,1 @@
-# References
-
-* octocat 1 😈
+This is what happense when a volcano meets a tsunami
